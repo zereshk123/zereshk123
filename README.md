@@ -54,6 +54,6 @@ Feel free to reach out through any of the platforms above!
 
 **"Building innovative solutions that bridge cutting-edge technology with real-world applications"**
 
-⭐️ From [alimahdibahrami](https://github.com/zereshk123)
+⭐️ From [mheydari006](https://github.com/zereshk123)
 
 </div>
